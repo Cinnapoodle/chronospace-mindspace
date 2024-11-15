@@ -18,4 +18,4 @@ Or will you get banned, or worse, trying?
 The future is now, powered by Chronoworld!
 
 
-Chronospace MindSpace is created by Cinnapoodle, SKCro and brew.
+Chronospace MindSpace is created by Cinnapoodle, SKCro and dotbrew.
